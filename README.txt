@@ -1,3 +1,3 @@
 Welcome
 
-This domain is for sale. email daljit.sandhu@technoval.xyz
+This domain is for sale.
